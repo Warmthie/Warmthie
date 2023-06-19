@@ -1,5 +1,5 @@
 Yo its me warm and i love capybaras!
 
 
+![giphy (1)](https://github.com/Warmthie/Warmthie/assets/137120884/bcc8d5a3-02ca-4efb-a1a1-dd93005c4969)
 
-![giphy](https://github.com/Warmthie/Warmthie/assets/137120884/bf843087-25ef-4151-98bf-d908322ac265)
